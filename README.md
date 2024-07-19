@@ -3,4 +3,4 @@
 
 🌱 I am passionate about solving business problems and am known for my lateral thinking. I thrive in fast-paced, collaborative environments and bring a dynamic learning approach to every challenge. Nothing excites me more than diving deep into a perplexing issue and crafting innovative solutions.
 
-🤝 Looking for a data enthusiast to brainstorm and crack tough problems? I’m your go-to collaborator! If you share this passion for problem-solving or are interested in exploring potential collaborations, let’s connect. Reach me via email at nguyenvuanh2002@gmail.com or explore my data portfolio at adam.super.site/.
+🤝 Looking for a data enthusiast to brainstorm and crack tough problems? I’m your go-to collaborator! If you share this passion for problem-solving or are interested in exploring potential collaborations, let’s connect. Reach me via email at nguyenvuanh2002@gmail.com or explore my data portfolio at adam.super.site
