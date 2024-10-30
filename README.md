@@ -1,5 +1,5 @@
 ## Hi there 👋
-🎓 As a detail-oriented business development professional with over 5 years of robust partnership management experience, I am actively pursuing opportunities to enhance my skill set in data analytics. My goal is to leverage these advanced analytical capabilities to drive impactful decision-making, address complex business needs, and optimize existing systems for more actionable insights.
+🎓 As a detail-oriented business operation professional with over 3 years of robust experience, I am actively pursuing opportunities to enhance my skill set in data analytics. My goal is to leverage these advanced analytical capabilities to drive impactful decision-making, address complex business needs, and optimize existing systems for more actionable insights.
 
 🌱 I am passionate about solving business problems and am known for my lateral thinking. I thrive in fast-paced, collaborative environments and bring a dynamic learning approach to every challenge. Nothing excites me more than diving deep into a perplexing issue and crafting innovative solutions.
 
